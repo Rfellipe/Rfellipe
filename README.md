@@ -10,8 +10,6 @@
 
 ###
 
-<img align="right" height="150" src="https://c.tenor.com/f-nICqWLnrQAAAAd/tenor.gif"  />
-
 ###
 
 <div align="left">
